@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @jenguyenanhnhu
-- 👀 I’m interested in history, sustainable fashion, innovation, and crypto.
 - 🌱 I’m currently learning how to conquer the world.
 - 💞️ I’m looking to collaborate on ...stay tuned!
 - 📫 You can reach me via https://www.linkedin.com/in/jennynguyenanhnhu/
